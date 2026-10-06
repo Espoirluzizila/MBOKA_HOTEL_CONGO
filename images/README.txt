@@ -1,0 +1,1 @@
+Identité visuelle MBOKA HÔTEL : logo et motif inspiré des couleurs de la République démocratique du Congo.
